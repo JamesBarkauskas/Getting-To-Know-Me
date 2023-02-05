@@ -1,1 +1,2 @@
-# Getting-To-Know-Me
+# James Barkauskas
+## Getting to know me page 
